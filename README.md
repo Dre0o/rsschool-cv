@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Dre0o.github.io/rsschool-cv/cv
